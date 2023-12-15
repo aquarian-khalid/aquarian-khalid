@@ -8,7 +8,7 @@
 
 - I have the ability to demonstrate exceptional performance (either as an individual or as a team member) and meet deadlines by working hard and communicating effectively. I'm always eager to learn cutting-edge technology and make sure the learning curve is minimal and as fast as possible.
 
-- Worked as a Project Manager/Team Leader at Quaid Technologies from Dec 2016 to Aug 2022.
+- Worked as a Project Manager/Team Leader at Quaid Technologies from Dec 2016 to Jun 2023.
 
 - As a Principal Software Engineer at Xeeonix Technologies from Sep 2012 to Nov 2016.
 
